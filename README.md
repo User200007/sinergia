@@ -1,3 +1,0 @@
-# sinergia
-# sinergia
-# sinergia2
